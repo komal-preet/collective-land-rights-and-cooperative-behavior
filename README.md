@@ -1,1 +1,1 @@
-# collective-land-rights-and-cooperative-behavior
+Collective property rights faciliate cooperative behavior. 
